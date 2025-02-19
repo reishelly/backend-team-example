@@ -9,3 +9,4 @@ haii lipiii
 git
 
 535240023, jujur aja satu dua tiga sayang semuanya
+halo apakah aku bsa mengedit disini lagi yaa??
