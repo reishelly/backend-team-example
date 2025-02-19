@@ -7,3 +7,5 @@ hai buleadd
 haii lipiii
 
 git
+
+535240023, jujur aja satu dua tiga sayang semuanya
